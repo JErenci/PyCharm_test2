@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JErenci
+- 👀 I’m interested in Automation, Airplanes and Satellites
+- 🌱 I’m currently learning Dash
+- 💞️ I’m looking to collaborate on a new exciting project called Ditto
+- 📫 How to reach me juan.erencia.guerrero@gmail.com
